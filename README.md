@@ -1,0 +1,1 @@
+# npt-unlock-all-gamepass
